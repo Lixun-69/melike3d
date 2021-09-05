@@ -4,4 +4,4 @@ cause its better
 
 follow me
 
-full time social media influencer
+full time github influencer
